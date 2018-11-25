@@ -1,1 +1,1 @@
-# damos.com
+# damoss.com.ua
